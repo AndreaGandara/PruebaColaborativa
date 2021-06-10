@@ -7,4 +7,4 @@ Aprendiendo a colaborar nuevamente
 hola hola hola perrito bonito perrito guaguita :)
 
 
-puede ser bonito colaborar
+puede ser bonito colaborar con una compañera de trabajo 
